@@ -1,1 +1,0 @@
-# yazilim-mimarisi-ve-tasarimi2
